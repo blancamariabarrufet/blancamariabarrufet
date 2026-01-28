@@ -103,8 +103,4 @@ I enjoy working in teams, where collaboration fuels creativity and continuous le
 
 ---
 
-Feel free to explore or get in touch!
-
----
-
 ⭐ If you found this profile interesting, feel free to connect or reach out!
